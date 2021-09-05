@@ -1,2 +1,2 @@
-# Rishab_Bindal.github.io
-This is a repo of pages of github for Rishab_Bindal
+# Biography-Of-THE_STRONGEST_BOT.github.io
+This is a repo of pages of github for THE_STRONGEST_BOT
